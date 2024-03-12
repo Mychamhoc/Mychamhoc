@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Mychamhoc
+- 👀 I’m interested in data
